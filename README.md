@@ -1,4 +1,4 @@
-# =LOVE – 恋人以上、好き未満 (TV Size)
+# =LOVE – 恋人以上、好き未満 (Full Size) - Koibito ijyou Suki miman (Full Size)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
